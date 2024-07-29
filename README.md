@@ -1,0 +1,1 @@
+Recipe of pancakes
